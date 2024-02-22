@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MikeCt203
+- I'm recently retired and enjoyed programming thru the years as a hobbie
+- I owned and operated a Tool & Die shop till retirement
+- Enough said for now
